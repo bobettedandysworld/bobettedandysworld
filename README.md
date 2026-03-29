@@ -14,3 +14,4 @@ hi im the CEO of bobette x ginger ${{\color{#A52A2A}{\textsf{ (shipped them when
 
 i block ${{\color{#A52A2A}{\textsf{ FREELY }}}}$ if you make me uncomfortable ok?
 
+[strawpage but mephoneX themed](https://mister-mephonex.straw.page/)
