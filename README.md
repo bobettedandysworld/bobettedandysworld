@@ -15,3 +15,4 @@ hi im the CEO of bobette x ginger ${{\color{#A52A2A}{\textsf{ (shipped them when
 i block ${{\color{#A52A2A}{\textsf{ FREELY }}}}$ if you make me uncomfortable ok?
 
 ![hi (2)](https://github.com/user-attachments/assets/18d71568-1cdb-48c8-b0cd-615fb61659fc)
+stop why she big dud
