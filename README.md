@@ -16,5 +16,6 @@ hi im the CEO of bobette x ginger ${{\color{#A52A2A}{\textsf{ (shipped them when
 
 i block ${{\color{#A52A2A}{\textsf{ FREELY }}}}$ if you make me uncomfortable ok?
 
+i'm not a pr#/d#rkshipper, nor interact on the pro-tree. don't believe any misinformation 'bout me.
+
 ![hi (2)](https://github.com/user-attachments/assets/18d71568-1cdb-48c8-b0cd-615fb61659fc)
-stop she so big dud
